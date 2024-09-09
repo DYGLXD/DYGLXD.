@@ -1,1 +1,1 @@
-# DYGLXD.
+# DYGLXD
